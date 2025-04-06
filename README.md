@@ -5,4 +5,5 @@
 
 <sup>( https://drive.google.com/drive/folders/1trAXtQ0ljkyUHXPSivXU2A5fQhC2ie9- )</sup>
 <hr>
+![kép](https://github.com/user-attachments/assets/f4df3fc3-9a44-4c07-bff1-e4b6027face7)
 
